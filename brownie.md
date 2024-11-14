@@ -3,6 +3,8 @@
 * nuts
 * butter
 
-#instructions
+#Instructions
+*Find someone to make the brownies
+*Eat all of the brownies
 #Price
 
